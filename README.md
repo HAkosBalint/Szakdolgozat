@@ -1,0 +1,2 @@
+# Szakdolgozat
+GZ6MDY
